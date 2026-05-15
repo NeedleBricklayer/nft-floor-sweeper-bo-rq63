@@ -1,4 +1,4 @@
-# 
+# elite nft floor sweeper bot | wash-trading-detection + proxy-transactions is the best nft floor sweeper bot, featuring wash-trading-detection and proxy-transactions. Fast, smart,
 
 
 
